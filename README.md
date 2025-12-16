@@ -2,7 +2,7 @@
 
 🇫🇷 French
 
-🏫 Final year of engineering school
+🏫 Engineering degree obtained at JUNIA ISEN
 
 🔒 Specialization in cybersecurity
 
